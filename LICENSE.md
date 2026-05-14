@@ -1,4 +1,4 @@
-# 
+# best Lunacy for macOS Script | plugin support + gradient maps is the best Lunacy for macOS script, featuring plugin support and gradient maps. Safe, efficient, and optimized for
 
 
 
